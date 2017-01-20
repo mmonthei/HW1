@@ -1,3 +1,0 @@
-McKayla Monthei
-
-Chicago Cubs
